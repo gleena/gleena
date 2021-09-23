@@ -1,1 +1,1 @@
-👀 I am interested in Data Science and Music 🎵
+👀 Data Science and Music 🎵
